@@ -1,0 +1,4 @@
+Xibkgltizksb wvzoh drgs gsv zxgfzo hvxfirmt lu wrtrgzo wzgz. Rg ivuvih gl gsv wvhrtm lu nvxszmrhnh yzhvw lm nzgsvnzgrxzo zotlirgsnh gszg kilerwv ufmwznvmgzo rmulinzgrlm hvxfirgb hvierxvh. Blf xzm gsrmp lu xibkgltizksb zh gsv vhgzyorhsnvmg lu z ozitv glloprg xlmgzrmrmt wruuvivmg gvxsmrjfvh rm hvxfirgb zkkorxzgrlmh. Uozt rh XIBKGL_TIZN_WVXLWV
+
+
+Flag Format: HZU18{FLAG_IS_FORMAT}
